@@ -1,2 +1,2 @@
 # DUPLA
-## Glawber (10), Henrique (0)
+## Glawber (10), Henrique (34)
